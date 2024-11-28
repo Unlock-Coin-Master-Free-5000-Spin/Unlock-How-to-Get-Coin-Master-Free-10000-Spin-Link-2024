@@ -2,7 +2,7 @@
 
 **Welcome!** Before we dive into the exciting details about how to get Coin Master free spins, we want to offer you something special. Keep reading to discover the *free 10,000 spin link* for Coin Master, exclusive for our readers in 2024. Yes, you heard that right!
 
-### [👉CLICK HERE TO GET NOW FREE](https://jackmarkjr.github.io/spins/)
+### [👉CLICK HERE TO GET NOW FREE👈](https://freeforyou.xyz/cms/)
 
 **Get ready to boost your Coin Master game like never before with 10,000 free spins!** This article will guide you through the latest and most reliable ways to grab this free reward and maximize your gameplay experience.
 
